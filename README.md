@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Jen :)
 
 I'm an aspiring web and game developer specializing in spooky proejcts and unique web experiences! 
 
