@@ -1,6 +1,6 @@
 ## Hi, I'm Jen :)
 
-I'm an aspiring web and game developer specializing in spooky proejcts and unique web experiences! 
+I'm an aspiring web and game developer specializing in spooky projects and unique web experiences! 
 
 Currently finishing my Master's in Digital Media at UCF. 
 
